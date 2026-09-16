@@ -4,3 +4,9 @@ Lm is a mid size minority own manufacturing company that is located in Detroit, 
 They are also partial owned by Magna International. 
 
 Hosting Manufacturing Day for the last 5 years. 2026 is on Oct. 1st. 
+
+Contacts
+Sylvester Hester - President 
+Edwin Limmitt <edwin.limmitt@lm-mfg.com> - HR Generalist
+Dana Beaurem <dana.beaurem@lm-mfg.com> - 
+
