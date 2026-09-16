@@ -1,4 +1,6 @@
 email about 2026 manufacturing 
+
+# From Eddie 
 Dear Shannon,
 I hope you’re doing well. I wanted to connect you with my manager, Dana, as we prepare for Manufacturing Day 2026.
 We’ve really valued your partnership and support in the past, and I’m excited that you’re able to join us again this year. I also understand that you may have an additional partner/resource who could participate, which could be a great addition to the student experience.

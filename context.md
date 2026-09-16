@@ -1,12 +1,13 @@
-LM Manufacturing 
-Lm is a mid size minority own manufacturing company that is located in Detroit, MI. With about 600 employees. They assemble seats for the Ford Bronco. 
+# LM Manufacturing 
+LM is a mid size minority own manufacturing company that is located in Detroit, MI. With about 600 employees. They assemble seats for the Ford Bronco. 
 
 They are also partial owned by Magna International. 
 
 Hosting Manufacturing Day for the last 5 years. 2026 is on Oct. 1st. 
 
 Contacts
-Sylvester Hester - President 
-Edwin Limmitt <edwin.limmitt@lm-mfg.com> - HR Generalist
-Dana Beaurem <dana.beaurem@lm-mfg.com> - 
+* Sylvester Hester - President 
+* Edwin Limmitt <edwin.limmitt@lm-mfg.com> - HR Generalist
+* Dana Beaurem <dana.beaurem@lm-mfg.com> - 
+* Demetrius Perry <Demetrius.Perry@lm-mfg.com>
 
